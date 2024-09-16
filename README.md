@@ -1,1 +1,3 @@
-# Sa-de-na-cidade
+Saúde na cidade
+
+Escolhi esse tema pois, precisa ser abordado com mais frequência como, a falta de UTI's nos hospitais, a falta de infraestrutura dentro desses hospitais, não possui IML,já que o mais próximo são as cidades vizinhas, como no caso de Laranjeiras do Sul, não tem IML e precisa ir ao mais próximo nesse caso seria o de Guarapuava, muitas vezes os familiares do falecido esperam quase um dia para saber a causa da morte.Em Laranjeiras também teria que ter uma melhoria nos postos de saúde pois muitas pessoas precisam ir de madrugada para conseguir uma ficha para consultar com um médico, tendo que ficar no frio e sem nenhuma segurança pois ficam para o lado de fora , pois o posto de saúde só abre as 08 da manhã.
